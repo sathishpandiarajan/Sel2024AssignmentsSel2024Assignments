@@ -1,1 +1,1 @@
-# Sel2024AssignmentsSel2024Assignments
+# Sel2024Assignments
